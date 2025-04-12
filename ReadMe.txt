@@ -1,2 +1,0 @@
-Sidd Padmanaban
-Sohan Patel
